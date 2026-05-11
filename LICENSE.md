@@ -1,4 +1,4 @@
-
+Enhance GarageBand for macOS with GarageBand for macOS ultimate Automation: noise-reduction & social-media-export, the #1 automation. Includes noise-reduction and
 
 
 
